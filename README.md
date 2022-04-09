@@ -21,13 +21,13 @@ I love to take pictures ❤️💓📸📷🎞<br>
 ครึ่งงาน 500 บาท <br>
 เต็มงาน 1000 บาท <br>
 สิ่งที่ได้รับ<br>
-❌ภาพไม่จำกัด❌<br>
+❌***ภาพไม่จำกัด***❌<br>
 📨ส่งงานแบบไม่แต่ง 3-7 วัน📨<br>
 ส่งงานแบบแต่งใน 1-2 สัปดาห์ <br>
-รับไฟล์ภาพทั้งหมด(google drive , LINE หากสะดวกที่ลูกค้าต้องการ<br>
+**รับไฟล์ภาพทั้งหมด(google drive , LINE หากสะดวกที่ลูกค้าต้องการ**<br>
 contact☎️<br>
 FB: Nitiphong Wangrat <br>
-Tel:083-272-6731<br>
-Line:@Plinelenspap<br>
-Tel.083-27-26-731 📱<br>
-Emil : nitiphong@wangrach.com<br>
+**Tel**:083-272-6731<br>
+***Line:@Plinelenspap***<br>
+**Tel.083-27-26-731 📱**<br>
+***Emil : nitiphong@wangrach.com***<br>
