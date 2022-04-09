@@ -30,4 +30,4 @@ FB: Nitiphong Wangrat <br>
 **Tel**:083-272-6731<br>
 ***Line:@Plinelenspap***<br>
 **Tel.083-27-26-731 📱**<br>
-***Emil : nitiphong@wangrach.com***<br>
+***Email : nitiphong@wangrach.com***<br>
